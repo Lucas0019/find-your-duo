@@ -1,1 +1,1 @@
-# Find Your Duo 🚀
+# Find Your Duo 🎮
